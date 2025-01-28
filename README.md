@@ -1,1 +1,1 @@
-# poco sumber berita terkini dan akurat
+# fixnews your fresh news everyday
